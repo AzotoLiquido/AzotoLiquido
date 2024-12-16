@@ -2,7 +2,7 @@
 - 👀 I’m interested in Gaming,Pc Building and Coding
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on some code to improve my coding skills
-- 📫 How to reach me -Discord: _azazel980_ 
+- 📫 How to reach me -Discord: "_ azazel980 _" 
 - ⚡ Fun fact: I'm not funny
 
 <!---
